@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @surigloballeadershiphiring
-- 👀 I’m interested in Talent Acquisition, GLobal Leadership Hiring, Manpower Planning, People Management
-- 🌱 I’m currently learning Organizational Leadership
+- 👋 Hi, I’m Surendra @surigloballeadershiphiring
+- 👀 I’m interested in Talent Acquisition, Global Leadership Hiring, Manpower Planning, People Management, Staffing, Recruitment, Team Management, Strategic Hiring, Leadership Hiring for United States, APAC, UK, Middle East, Canada, Europe and Australia, Industry Coverage(IT Roles) - IT, FMCG/Consumer, Oil & Gas, Banking/Insurance, Manufacturing, Chemical, Construction, Airlines/Aviation, Pharma/Bio Pharma, Seafood, etc.
+- 🌱 I’m currently learning a certification in Organizational Leadership from Harvard University(Online)
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me - hrsuri56@gmail.com
-
-<!---
-surigloballeadershiphiring/surigloballeadershiphiring is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 📫 How to reach me - hrsuri56@gmail.com or linkedin.com/in/surisingh1
